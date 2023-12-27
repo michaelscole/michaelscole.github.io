@@ -1,5 +1,5 @@
-The purpose of this blog is to encourage the development of the individual resources
+This blog is where I write about about learning and trying new things, 
 
-within myself and others, so that the world of the future 
+about growing through exploring, and about gaining insights through sharing it all
 
-is an even better place than the world of today, for everyone.
+with others so they can help me better understand it.
