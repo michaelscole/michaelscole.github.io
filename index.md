@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+My family's mission is to conserve and protect the environmental resources we all depend upon
 
-Maybe say a some things about yourself.
+while developing the individual resources in each of us, so that the world of the future 
 
-Or maybe what you plan to blog about.
+is an even better place than the world of today, for everyone.
