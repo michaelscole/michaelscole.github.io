@@ -1,5 +1,5 @@
 This blog is where I write about about learning and trying new things, 
 
-about growing through exploring, and about gaining insights through sharing it all
+about growing through exploring, and where I seek to get a better
 
-with others so they can help me better understand it.
+understanding of it all by sharing with others and asking for their feedback.
